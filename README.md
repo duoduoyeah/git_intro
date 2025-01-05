@@ -1,1 +1,4 @@
-Shiyuan Li3
+Shiyuan Li
+lsh@oregonstate.edu
+blue
+the Who
